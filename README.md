@@ -1,1 +1,2 @@
-# worst-thing-i-made
+# THE WORST THING ON THIS PLANET
+useless
